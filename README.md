@@ -1,1 +1,1 @@
-i make dumb thinga
+i make dumb things
